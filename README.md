@@ -1,3 +1,3 @@
 # katarzynakarp.github.io
 
-**Salon kosmetyczna La Perla**
+**Salon kosmetyczny La Perla**
